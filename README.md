@@ -19,3 +19,5 @@ Jeg måtte bli våt siden jeg ikke hadde en paraply.
 Jeg gikk hjem.
 
 Skrudde på TV-en.
+
+Noe

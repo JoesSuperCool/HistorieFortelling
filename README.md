@@ -13,3 +13,5 @@ Pizzaen hadde pepperoni og ost, og den var god.
 Etter pizzaen må jeg gå ut og ta en røyk.
 
 Det begynte å regne.
+
+Jeg måtte bli våt siden jeg ikke hadde en paraply.

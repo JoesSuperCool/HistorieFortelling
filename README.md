@@ -9,3 +9,5 @@ Det var rabatt på pizza i butikken.
 Kassedama lukta tiss.
 
 Pizzaen hadde pepperoni og ost, og den var god.
+
+Etter pizzaen må jeg gå ut og ta en røyk.

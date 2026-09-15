@@ -15,3 +15,5 @@ Etter pizzaen må jeg gå ut og ta en røyk.
 Det begynte å regne.
 
 Jeg måtte bli våt siden jeg ikke hadde en paraply.
+
+Jeg gikk hjem.
